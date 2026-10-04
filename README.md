@@ -1,2 +1,2 @@
-# Komang-Ramaa
+limit met
 gw ada lah orang keren
